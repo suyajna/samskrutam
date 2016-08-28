@@ -3,38 +3,68 @@
 
 **न च श्रेयोऽनुपश्यामि हत्वा स्वजनमाहवे|**
 
-**स्त्न काङ्क्षे विजयं कृष्ण न च राज्यं सुखानि च। १.३१ |**
+**न काङ्क्षे विजयं कृष्ण न च राज्यं सुखानि च। १.३१ |**
 
 -----
 
-O Krishna, I do not see any good in slaying kinsmen in this battle, nor do I desire victory, nor a kingdom or even Happiness
+O Krishna, I do not see any good in slaying kinsmen in this battle, nor do I desire victory, nor a kingdom or even Happiness.
 
 |शब्द|  अर्थ |
 |---|---|
-| मे शरीरे | My body |
-|वेपथु: च| is trembling and |
-|रोमहर्षश्र्च जायते | hair standing on end also|
-| गाण्डीवं हस्तात् स्त्रंसते | Gandiva is slipping  from my hand|
-|त्वक् च  परिदह्यते एव| and my skin is burning.|
+| कृष्ण| O Krishna |
+| न अनुपश्यामि च | I do not see |
+|श्रेयः| any good|
+|स्वजनं हत्वा | in slaying kinsmen|
+| अाहवे | in battle|
+|न काङ्क्षे विजयं| nor do i desire victory|
+|न च राज्यं सुखानि| nor happiness or kingdom|
 
 
 -----
 
 
-**न च शक्नोम्यवस्थातुं भ्रमतीव च मे मनः|**
+**किं नो राजयेन गोविन्द किं भोगैर्जीवितेन वा |**
 
-**निमित्तानि च पश्यामि विपरीतानि केशव। 1.२८ |**
+**येषामर्थे नो राज्यं भोगाः सुखानि च। १-३२**
+
+**त इमेऽवस्थिता युद्धे प्राणांस्त्यक्त्वा धनानि च|**
+
+**अाचार्याः पितरः पुत्रास्तथैव च पितामहाः। ३३**
+
+**मातुलाः श्वशुराः पौत्राः श्यालाः सम्बन्धिनस्तथा|**
+
+**एतान्न हन्तुमिच्छामि घ्नतोऽपि मधुसूदन। ३४**
+
+**अपि त्रैलोक्यराज्यास्य हेतोः किं नु महीकृते|**
+
+**निहत्य धार्तराष्ट्रान्नः का प्रीतिः स्याज्जनारदन। १-३५**
+
+----
+
+O Krishna, of what value are kingdoms, what value is living for enjoyment if they, for whom our kingdom, material pleasure and happiness are desired - preceptors, fatherly elders, sons, grandfatherly elders, maternal uncles, fathers in lay, grandsons, brothers in lay and relatives are all present on this battle field ready to give up their kinddoms and their very lives. 
+
+O Krishna, even if they want to take my life, I do not wish to take their lives. 
+
+O Krishna, even for the rulership of the three worlds in exchange for slaying of the sons of Dhritarashtra, what happiness will be derived by us, not to speak of this earth.
 
 -----
-
-O Krishna, I am unable to keep composed, my mind is unsteady and I see dire indications of inauspicious omens
 
 |शब्द|  अर्थ |
 |---|---|
-| केशव | O Krishna (destroyer of Kesi) |
-| न शक्नोमि  | I am unable to |
-| अवस्थातुं | keep composed|
-|मे मनः | My mind  |
-| भ्रमतीव = भ्रमति इव | is unsteady|
-|च पश्यामि विपरीतानि निमित्तानि | and I see inauspicous omens|
+| गोविन्द | O Krishna (destroyer of Kesi) |
+| किं नः राज्येन  | What (value) is our kinddom?  |
+| किं भोगैर्जीवितेन वा | what (value) is living for materal enjoyment if |
+| येषाम् अर्थे नः राज्यं भोगाः सुखानि च| They for whom our kingdom and happiness are desired... |
+| त इमे | all these|
+|अवस्थिता युद्धे प्राणांस्त्यक्त्वा धनानि च | are assembled read to sacrifice their wealth and even lives in battle|
+| अाचार्याः पितरः पुत्रास्तथैव च पितामहाः | Teachers, fatherly elders, sons and also, grandfatherly elders|
+| मातुलाः श्वशुराः पौत्राः श्यालाः सम्बन्धिनस्तथा | Maternal uncles, fathers in lay, grandsons, sons, brothers in law and relatives|
+| एतान्न हन्तुमिच्छामि घ्नतोऽपि मधुसूदन| O Madhusudana, एतान् हन्तुम् न इच्छामि  - (I do not wish to take their lives); घ्नतोऽपि - Even if they want to take my life |
+|  त्रैलोक्यराज्यास्य  | for the rulership of the three worlds|
+| हेतोः | in exhange |
+| अपि किं नु महीकृते | and What to speak of this earth|
+| निहत्य धार्तराष्ट्रान्नः | for slaying sons of Dhritarashtra|
+| का प्रीतिः स्याज्जनारदन| What happiness will be derived?|
 
+
+[ref: http://www.bhagavad-gita.org/Gita/verse-01-29.html]
