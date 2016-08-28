@@ -45,7 +45,7 @@ O Krishna, of what value are kingdoms, what value is living for enjoyment if the
 
 O Krishna, even if they want to take my life, I do not wish to take their lives. 
 
-O Krishna, even for the rulership of the three worlds in exchange for slaying of the sons of Dhritarashtra, what happiness will be derived by us, not to speak of this earth.
+O Krishna, what to speak of this earth?, even for the rulership of the three worlds in exchange for slaying of the sons of Dhritarashtra what happiness will be derived by us?
 
 -----
 
